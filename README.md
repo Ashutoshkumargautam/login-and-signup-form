@@ -5,7 +5,9 @@ Made By : Ashutoshkumargautam
 contact me : ashutoshkumargautam@protonmail.com
 ------------------------------------------------------
 #########################################################
-Donate me : paypal.me/ashutosh7217723683
+Donate me for new projects
+------------------------------------------
+https://paypal.me/ashutosh7217723683
 ---------------------------------------------------------
 Thank you
 -----------
